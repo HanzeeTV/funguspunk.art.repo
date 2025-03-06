@@ -21,7 +21,7 @@ I have been making clothing since I was twelve. I started with a sewing machine 
 ![gobliewarez01.png](/img/user/FungusPunk/Images/gobliewarez01.png)
 
 <div style="display: flex; justify-content: center; cursor:pointer;">
-	<a href="contact@funguspunk.art" target="_blank">
+	<a href="[[FungusPunk/Contact me\|Contact me]]" target="_blank">
 		<button>contact@funguspunk.art</button>
 	</a>
 </div>

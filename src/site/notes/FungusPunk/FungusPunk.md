@@ -12,7 +12,9 @@ My name Is Ivory but you may only call me MY warrior name **FungusPunk**. I coll
 ## Links
 [Instagram](https://www.instagram.com/xxfunguspunkxx/)
 [Buy Me a Coffee! (Ko-fi)](https://ko-fi.com/funguspunk)
-
+```markdown
+[<img style="float:left" src="https://user-images.githubusercontent.com/14358394/115450238-f39e8100-a21b-11eb-89d0-fa4b82cdbce8.png" width="200">](https://ko-fi.com/funguspunk)
+```
 ## Where do I buy this cool ass goblins art you may ask???##
 ![gobliewarez01.png](/img/user/FungusPunk/Images/gobliewarez01.png)contact@funguspunk.art 
 Here is where all you beautiful bodies and ghouls shall contact me. Ask me for customer work? Yes. Ask me for jewelry? Yes. Ask me were to send coin for trade? We will figure that out later when we talk. I make custom upcycled clothes. Send me in an item of clothing you want altered and tell me about the things you love in life. Then I can make you a piece customized around you and your experience...Or give me free range to fuck your shit up, that's good too. If there is any pre made items you like let me know and I can put them on hold and work on shipping them out to you.

@@ -4,11 +4,8 @@
 
 ![3img-scorpopants01.png](/img/user/FungusPunk/Images/3img-scorpopants01.png)
    
-<div>
-	<body>
+
 My name Is Ivory but you may only call me MY warrior name **FungusPunk**. I collect others garbage and make it into STYLISH garbage. Now a question for you... Do yall like draping your neked body in cool threads? Do you like to make a statement with your hot bod? *shhh don't answer that*. Well do I got the thing for you! Weekly drops of handmade clothing and jewelry. They are my treasures BUUUUT I am willing to trade them for coin???? Pss... disclaimer ( belly button lint may be lost in the process if you wish for it back then no its theirs now) Good luck!
-	</body>
-</div>
 
 ![AcidWashBugPants01.webp](/img/user/FungusPunk/Images/AcidWashBugPants01.webp)
   

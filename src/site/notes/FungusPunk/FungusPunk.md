@@ -6,6 +6,7 @@
    
 
 My name Is Ivory but you may only call me MY warrior name **FungusPunk**. I collect others garbage and make it into STYLISH garbage. Now a question for you... Do yall like draping your neked body in cool threads? Do you like to make a statement with your hot bod? *shhh don't answer that*. Well do I got the thing for you! Weekly drops of handmade clothing and jewelry. They are my treasures BUUUUT I am willing to trade them for coin???? Pss... disclaimer ( belly button lint may be lost in the process if you wish for it back then no its theirs now) Good luck!
+## **[[FungusPunk/Events/Check out my booth at CoreFest 2025\|Check out my booth at CoreFest 2025]]!!**
 
 ![AcidWashBugPants01.webp](/img/user/FungusPunk/Images/AcidWashBugPants01.webp)
   
@@ -27,3 +28,4 @@ I have been making clothing since I was twelve. I started with a sewing machine 
 </div>
 Here is where all you beautiful bodies and ghouls shall contact me. Ask me for customer work? Yes. Ask me for jewelry? Yes. Ask me were to send coin for trade? We will figure that out later when we talk. I make custom upcycled clothes. Send me in an item of clothing you want altered and tell me about the things you love in life. Then I can make you a piece customized around you and your experience...Or give me free range to fuck your shit up, that's good too. If there is any pre made items you like let me know and I can put them on hold and work on shipping them out to you.
 `` contact@funguspunk.art  
+

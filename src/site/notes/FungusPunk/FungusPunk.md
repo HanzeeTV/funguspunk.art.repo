@@ -16,7 +16,7 @@ I have been making clothing since I was twelve. I started with a sewing machine 
 [Instagram](https://www.instagram.com/xxfunguspunkxx/)
 [Buy Me a Coffee! (Ko-fi)](https://ko-fi.com/funguspunk)
 
-## Where do I buy this cool ass goblins art you may ask???
+## [Where do I buy this cool ass goblins art you may ask???]([[FungusPunk/Contact me\|Contact me]])
 ![gobliewarez01.png](/img/user/FungusPunk/Images/gobliewarez01.png)
 
 <div style="display: flex; justify-content: center; cursor:pointer;">
